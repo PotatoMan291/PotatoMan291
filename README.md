@@ -2,5 +2,5 @@
 - A guy from Costa Rica
 - Likes games a lot, like Cyberpunk 2077, Elden Ring, Signalis, Death Stranding and many more
 - Listens to music a lot, mostly metal, like Sleep Token and Spiritbox
-- Might use this to upload projects from college, feel free to check them if you want
+- Might use this to upload projects from college, feel free to check them if you want (Note: Most of them are gonna be in Spanish)
 - Art made by @batsunozuchi on BlueSky
